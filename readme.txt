@@ -1,1 +1,1 @@
-privet it
+privet IT
